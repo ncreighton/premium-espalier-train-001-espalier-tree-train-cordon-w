@@ -1,0 +1,2 @@
+# premium-espalier-train-001-espalier-tree-train-cordon-w
+Struggling to track your espalier training schedule, wire placement, and seasonal pruning across multiple trees? The Espalier Tree Train &amp; Cordon Wire Craft Hub is a Notion template designed specifically for arborists, landscape designers, and serious home gardeners who need a centralized system to manage every aspect of their cordon and espalier p
